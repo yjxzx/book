@@ -1,4 +1,4 @@
-[润学方法论/各国选择/亚洲和大洋洲/日本/润日指南.md](https://github.com/The-Run-Philosophy-Organization/run/blob/main/%E6%B6%A6%E5%AD%A6%E6%96%B9%E6%B3%95%E8%AE%BA/%E5%90%84%E5%9B%BD%E9%80%89%E6%8B%A9/%E4%BA%9A%E6%B4%B2%E5%92%8C%E5%A4%A7%E6%B4%8B%E6%B4%B2/%E6%97%A5%E6%9C%AC/%E6%B6%A6%E6%97%A5%E6%8C%87%E5%8D%97.md)
+
 # 书单年度总结
 
 ## 2024年书单
